@@ -1,2 +1,0 @@
-# adiroe.github.io
-Portfolio
